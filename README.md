@@ -1,5 +1,4 @@
-URL: https://drive.google.com/uc?export=download&id=11NIuLhnIGMJ98VGbUTjzjt1TqpNTiV45
-
+URL: https://www.dropbox.com/scl/fi/gumr6po0v67n4jf9fk6xa/Payload.ipa?rlkey=ix6ncrb1bfpe3c07xal2cxyzg&st=mye8ksqr&dl=1
 
 
 # ✈️ uYouPlus is now archived ✈️
