@@ -1,4 +1,4 @@
-URL: https://drive.google.com/file/d/11NIuLhnIGMJ98VGbUTjzjt1TqpNTiV45/view?usp=sharing
+URL: https://drive.google.com/uc?export=download&id=11NIuLhnIGMJ98VGbUTjzjt1TqpNTiV45
 
 
 
